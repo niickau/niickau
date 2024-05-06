@@ -1,4 +1,4 @@
-# Hello, I'm Nick! 👋
+# Hi! 👋
 
 ## 🌟 About Me
 
